@@ -8,4 +8,5 @@ Coming soon!
 
 **Upcoming Deadlines**
 
-Coming soon!
+Tuesday, October 29th: [Midway Checkin](www.harvardquantum.com/checkin)
+Sunday, November 3rd: Challenges due!
